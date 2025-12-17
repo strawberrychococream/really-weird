@@ -1,8 +1,2 @@
-<img width="1600" height="210" alt="bflv38" src="https://github.com/user-attachments/assets/1165f315-039a-4e52-b12c-bd3646328248" />
-
-`fay / june / juniper`
-
-![1379a24f139fbdfc792e436a90fd8a18](https://github.com/user-attachments/assets/5c744856-80ae-4155-bf52-38e5efa2a299)
-
-`"                           𝗍һ᥆sᥱ mᥱm᥆rіᥱs іs . . . ᑲᥣᥙrrᥡ.                           "`
-<img width="1280" height="143" alt="yo1w4t" src="https://github.com/user-attachments/assets/2e345b82-77cb-4106-a143-0df44b38f981" />
+![5a5ccae1fcdf33e16adb1a6193ed26db](https://github.com/user-attachments/assets/34dafdf3-dd32-44da-81ab-b254441a5f61)
+<img width="1696" height="321" alt="r6ofv7" src="https://github.com/user-attachments/assets/497af6a5-6ebb-4e54-b830-b3efa999fcd6" />
