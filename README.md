@@ -1,1 +1,1 @@
-$\color{FFF5E0}\size{\font{yay}}$
+$\color{FFF5E0}\10{\textrm{yay}}$
